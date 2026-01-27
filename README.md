@@ -1,4 +1,4 @@
-# =LOVE – 探せ ダイヤモンドリリー (=LOVE 6th ANNIVERSARY PREMIUM CONCERT)
+# =LOVE – 探せ ダイヤモンドリリー (＝LOVE 7th ANNIVERSARY PREMIUM CONCERT)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
